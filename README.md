@@ -1,12 +1,10 @@
-- Hi, I’m @ZeLLphOn3
-- 👀 I’m interested in pjsk and idk
--  ...
-- 🎉 Pronouns: any (not it)
-- 💙 Fun fact: im a toya fan :3
+                                                                                                              !!! hellow, this is zell writing !!!
+                                                                                                               i love playing pjsk !!! rank: 221 !
+                                                                                                                         ₊˚⊹♡ ... ♡⊹˚₊
+                                                                                                                     Pronouns: any (not it)
+                                                                                                                 fun fact: i love toya (and akty)
 
-<!---
-ZeLLphOn3/ZeLLphOn3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
-![image](https://github.com/user-attachments/assets/f0f14bbc-e6d8-45af-b685-843ba222febe)
+
+
+                                                                                 ![image](https://github.com/user-attachments/assets/f0f14bbc-e6d8-45af-b685-843ba222febe)
 
